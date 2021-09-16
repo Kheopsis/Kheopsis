@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Kheopsis
 - 👀 I’m interested in Web Development
-- 🕵️‍♂️ I'm a "privacy-friendly" concept enthusiast
+- 🕵️‍♂️ I'm a "Privacy-friendly" concept enthusiast
